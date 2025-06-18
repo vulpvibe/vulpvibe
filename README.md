@@ -1,5 +1,5 @@
 
-# 🦄 Hi, I'm Wateen ^_^!
+# 🦄 Hi, I'm Wateen ^_^
 ![image alt](https://github.com/j94k/j94k/blob/main/download%20(4).jpg?raw=true)
 ## 🎶 About Me
 - I like Lapfox and their unique music styles.
