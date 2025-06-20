@@ -1,5 +1,5 @@
 
-# 😹 Hi, I'm Wateen ^_^
+# 🩵 Hi, I'm Wateen 💚
 >![image alt](https://i.pinimg.com/originals/e2/9e/1a/e29e1a7bcce0269e79cc7430d7736ee0.gif)
 
 ## 🎶 About Me
