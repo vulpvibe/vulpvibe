@@ -1,7 +1,4 @@
-![image alt](https://lyra.horse/css-clicker/buttons/miku.gif)
-![image alt](https://lyra.horse/css-clicker/buttons/antinft.gif)
-![image alt](https://cyber.dabamos.de/88x31/dabamos.gif)
-![image alt](https://lyra.horse/css-clicker/buttons/ravenow3.gif)
+
 # 🩵 Hi, I'm Wateen 🩷
 >![image alt](https://i.pinimg.com/originals/e7/02/71/e702719b0ac28f3e4026a9cbc6de4f1f.gif)
 
@@ -27,3 +24,7 @@
 ![image alt](https://seirdy.one/p/b/right2repair.2750504548.png)
 ![image alt](https://seirdy.one/p/b/linux.2229754719.png)
 ![image alt](https://lyra.horse/css-clicker/buttons/auberylis.moe.png)
+![image alt](https://lyra.horse/css-clicker/buttons/miku.gif)
+![image alt](https://lyra.horse/css-clicker/buttons/antinft.gif)
+![image alt](https://cyber.dabamos.de/88x31/dabamos.gif)
+![image alt](https://lyra.horse/css-clicker/buttons/ravenow3.gif)
