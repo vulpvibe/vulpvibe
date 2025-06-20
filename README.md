@@ -5,7 +5,7 @@
 ## 🎶 About Me
 - I like Lapfox .
 - I love Hotline Miami.
-- im from saudi arabia🇸🇦.
+- i love my friends 😊
 - IM BIGGEST FAN OF VOCALOID 
 
 ## 📱 Find Me Online
@@ -32,3 +32,5 @@
 ![image alt](https://lyra.horse/css-clicker/buttons/jkap.io.gif)
 ![image alt](https://lyra.horse/css-clicker/buttons/nofuckingthanks.gif)
 ![image alt](https://cyber.dabamos.de/88x31/button.gif)
+![image alt](https://badge.les.bi/88x31/aroace/outset.png)
+
