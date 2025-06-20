@@ -1,7 +1,7 @@
 
-# 🚳 Hi, I'm Wateen ^_^
-![](https://count.getloli.com/get/@vulpvibe.github.readme)
->![image alt](https://github.com/j94k/j94k/blob/main/download%20(4).jpg?raw=true)
+# 😹 Hi, I'm Wateen ^_^
+>![image alt](https://i.pinimg.com/originals/e2/9e/1a/e29e1a7bcce0269e79cc7430d7736ee0.gif)
+
 ## 🎶 About Me
 - I like Lapfox .
 - I love Hotline Miami.
@@ -15,5 +15,6 @@
 - TikTok: [1msiz](https://www.tiktok.com/@1msiz)
 
 
-## 💟 learning some languages to make future project soon!!💟
+## 💟 HAVE NICE DAY AND HAPPY BROWSING !!💟
+
 ![image alt](https://lyra.horse/css-clicker/buttons/powered-by-debian.gif)
