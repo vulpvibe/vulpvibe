@@ -1,8 +1,7 @@
 
 # 🦄 Hi, I'm Wateen ^_^
 ![](https://count.getloli.com/get/@vulpvibe.github.readme)
-
-![image alt](https://github.com/j94k/j94k/blob/main/download%20(4).jpg?raw=true)
+>![image alt](https://github.com/j94k/j94k/blob/main/download%20(4).jpg?raw=true)
 ## 🎶 About Me
 - I like Lapfox and their unique music styles.
 - I love Hotline Miami for its fast-paced action and soundtrack.
@@ -21,17 +20,4 @@
 
 
 ## 💟 learning some languages to make future project soon!!💟
-<!--
-**vulpvibe/vulpvibe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![image alt](https://lyra.horse/css-clicker/buttons/powered-by-debian.gif)
