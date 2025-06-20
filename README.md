@@ -8,7 +8,7 @@
 - IM BIGGEST FAN OF VOCALOID 
   
 ## 🦈 Fun Facts
-- I'm passionate about creative soundtracks and indie games.
+- I have cute pic when i was 4 with a COMPUTER 💻.
 
   
 ## 📱 Find Me Online
@@ -18,8 +18,8 @@
 ## 💟 HAVE NICE DAY AND HAPPY BROWSING !!💟
 
 ![image alt](https://lyra.horse/css-clicker/buttons/powered-by-debian.gif)
-![image alt](	https://msx.horse/data/buttons/button_webp.png)
 ![image alt](https://msx.horse/data/buttons/button_php.png)
 ![image alt](https://badge.les.bi/88x31/aroace/outset.png)
 ![image alt](https://yesterhost.neocities.org/archive/buttons/button215.gif)
+![image alt](https://yesterhost.neocities.org/archive/buttons/button176.gif)
 
