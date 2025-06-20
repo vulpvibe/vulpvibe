@@ -6,11 +6,7 @@
 - I love Hotline Miami.
 - im from saudi arabia🇸🇦.
 - IM BIGGEST FAN OF VOCALOID 
-  
-## 🦈 Fun Facts
-- I have cute pic when i was 4 with a COMPUTER 💻.
 
-  
 ## 📱 Find Me Online
 - TikTok: [1msiz](https://www.tiktok.com/@1msiz)
 
@@ -23,4 +19,5 @@
 ![image alt](https://yesterhost.neocities.org/archive/buttons/button215.gif)
 ![image alt](https://yesterhost.neocities.org/archive/buttons/button176.gif)
 ![image alt](https://yesterhost.neocities.org/archive/buttons/button222.png)
+![image alt](https://yesterhost.neocities.org/archive/buttons/button102.gif)
 
