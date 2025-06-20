@@ -33,4 +33,5 @@
 ![image alt](https://lyra.horse/css-clicker/buttons/nofuckingthanks.gif)
 ![image alt](https://cyber.dabamos.de/88x31/button.gif)
 ![image alt](https://badge.les.bi/88x31/aroace/outset.png)
+![image alt](https://cyber.dabamos.de/88x31/newlambda.gif)
 
