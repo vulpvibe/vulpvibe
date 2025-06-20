@@ -1,5 +1,6 @@
 ![image alt](https://lyra.horse/css-clicker/buttons/miku.gif)
 ![image alt](https://lyra.horse/css-clicker/buttons/antinft.gif)
+![image alt](https://cyber.dabamos.de/88x31/dabamos.gif)
 # 🩵 Hi, I'm Wateen 🩷
 >![image alt](https://i.pinimg.com/originals/e2/9e/1a/e29e1a7bcce0269e79cc7430d7736ee0.gif)
 
