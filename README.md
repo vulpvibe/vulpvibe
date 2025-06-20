@@ -18,3 +18,4 @@
 ## 💟 HAVE NICE DAY AND HAPPY BROWSING !!💟
 
 ![image alt](https://lyra.horse/css-clicker/buttons/powered-by-debian.gif)
+![image alt](	https://msx.horse/data/buttons/button_webp.png)
