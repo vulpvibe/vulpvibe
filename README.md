@@ -26,3 +26,4 @@
 ![image alt](https://yesterhost.neocities.org/archive/buttons/button102.gif)
 ![image alt](https://seirdy.one/p/b/right2repair.2750504548.png)
 ![image alt](https://seirdy.one/p/b/linux.2229754719.png)
+![image alt](https://lyra.horse/css-clicker/buttons/auberylis.moe.png)
