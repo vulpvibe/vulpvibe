@@ -30,3 +30,4 @@
 ![image alt](https://lyra.horse/css-clicker/buttons/ravenow3.gif)
 ![image alt](https://lyra.horse/css-clicker/buttons/construction.gif)
 ![image alt](https://cyber.dabamos.de/88x31/cuteanimegirls.gif)
+![image alt](https://lyra.horse/css-clicker/buttons/jkap.io.gif)
