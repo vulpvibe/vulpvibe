@@ -5,8 +5,8 @@
 ## 🎶 About Me
 - I like Lapfox .
 - I love Hotline Miami.
-- i love my friends 😊
-- IM BIGGEST FAN OF VOCALOID 
+- i love my friends :3.
+- IM BIGGEST FAN OF VOCALOID .
 
 ## 📱 Find Me Online
 - TikTok: [1msiz](https://www.tiktok.com/@1msiz)
